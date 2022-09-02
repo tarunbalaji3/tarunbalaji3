@@ -14,9 +14,9 @@ Here are a few things about me:
 
 My current favorite songs:
 
-*[REZZ x PEAKABOO - Vortex](https://www.youtube.com/watch?v=5Cav_KkuP4k)
-*[Baby Keem - STATS](https://www.youtube.com/watch?v=mavwHsZ2WeU)
-*[One True God & Coka Cobra - Burned](https://www.youtube.com/watch?v=F58DzENAWyA)
+* [REZZ x PEAKABOO - Vortex](https://www.youtube.com/watch?v=5Cav_KkuP4k)
+* [Baby Keem - STATS](https://www.youtube.com/watch?v=mavwHsZ2WeU)
+* [One True God & Coka Cobra - Burned](https://www.youtube.com/watch?v=F58DzENAWyA)
 
 
 ![AAAABfmMXAlCl7V53c0XLIF74E0AbbXUdAvzQJNS-64YxMrJM_QoZODYMyeVqZEmGyNAg4dYuyxBQZ6-UCdUgVALDJ3Wh0_k](https://user-images.githubusercontent.com/89943662/131752859-95e936d5-d499-4fd6-a912-061e57aa5d2a.jpg)
