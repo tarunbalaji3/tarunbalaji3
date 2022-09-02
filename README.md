@@ -1,5 +1,5 @@
 ### Hello 👋
-# My name is **Tarun Balaji Ravi**
+# My name is *Tarun Balaji Ravi*
 
 Here are a few things about me:
 
@@ -9,6 +9,7 @@ Here are a few things about me:
 - 🌱 My hobbies include lifting weights, yoga, producing music, cooking and reading
 - 🕺 I produce a fusion of house/trap music 
 - ⚡ Fun fact: I love festivals, raves, and anything involving good music! :alien:
+- 🏈 I'm an avid football fan
 - ♑ Was born on January 4, 1999
 - 🎮 You can add me on discord: tarunbalaji#4857
 
