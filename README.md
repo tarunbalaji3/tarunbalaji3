@@ -22,3 +22,7 @@ My current favorite songs:
 
 ![AAAABfmMXAlCl7V53c0XLIF74E0AbbXUdAvzQJNS-64YxMrJM_QoZODYMyeVqZEmGyNAg4dYuyxBQZ6-UCdUgVALDJ3Wh0_k](https://user-images.githubusercontent.com/89943662/131752859-95e936d5-d499-4fd6-a912-061e57aa5d2a.jpg)
 
+
+I have learned that my typography superpower is:
+
+![luxury-superpower-lg](https://user-images.githubusercontent.com/89943662/191590171-cc634303-8944-4eb6-a579-3bd40f91831a.png)
